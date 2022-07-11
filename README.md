@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Antoine642
+- 👀 I’m interested in tech ans developpment
+- 🌱 I’m currently learning to go forward
